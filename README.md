@@ -1,7 +1,7 @@
 # Hi there 👋, I'm drizzyydev
 
-Welcome to my GitHub profile!
-
+Welcome to my ALT GitHub profile!
+main account is (https://github.com/driizzyy/)
 ---
 
 ## 🚀 About Me
